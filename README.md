@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-QUCS080219MMCNRNA5
+QUCS080219MMCNRNA5
